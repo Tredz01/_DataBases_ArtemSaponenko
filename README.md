@@ -7,5 +7,12 @@ https://docs.google.com/document/d/1x7LwcosaVqDME2MR7Jv9-Fl33mjD9AFGEJg0oppoyDI/
 ____________________________________________________________________________________________________________________
 Классная работа в PyCharm:
 https://docs.google.com/document/d/1AnsEsQgv4wI9hzzzLfHLOkIGqiPTsVMTgzFC2Yd3bho/edit?usp=sharing
+
+Работа в пайчарм 02.11.2023
+ссылка:
+
+
+Работа в пайчарм 03.11.2023
+ссылка: https://docs.google.com/document/d/1U854vqJ-3ctOw-S7JLw_nNqIAcmmsRR_dqLgFDWu9xk/edit?usp=sharing
+
 ____________________________________________________________________________________________________________________
-Домашняя работа в pycharm:
