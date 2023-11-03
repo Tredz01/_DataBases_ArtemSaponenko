@@ -10,9 +10,11 @@ https://docs.google.com/document/d/1AnsEsQgv4wI9hzzzLfHLOkIGqiPTsVMTgzFC2Yd3bho/
 
 Работа в пайчарм 02.11.2023
 ссылка:
+https://docs.google.com/document/d/1IZv3w9OJb1mA43Z5cgwGzn23civkA7HhlRYgwEsU7oI/edit?usp=sharing
 
 
 Работа в пайчарм 03.11.2023
-ссылка: https://docs.google.com/document/d/1U854vqJ-3ctOw-S7JLw_nNqIAcmmsRR_dqLgFDWu9xk/edit?usp=sharing
+ссылка: 
+https://docs.google.com/document/d/1U854vqJ-3ctOw-S7JLw_nNqIAcmmsRR_dqLgFDWu9xk/edit?usp=sharing
 
 ____________________________________________________________________________________________________________________
