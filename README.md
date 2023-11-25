@@ -18,3 +18,10 @@ https://docs.google.com/document/d/1IZv3w9OJb1mA43Z5cgwGzn23civkA7HhlRYgwEsU7oI/
 https://docs.google.com/document/d/1U854vqJ-3ctOw-S7JLw_nNqIAcmmsRR_dqLgFDWu9xk/edit?usp=sharing
 
 ____________________________________________________________________________________________________________________
+
+Пайтон модуль 2 + контрольная работа
+https://docs.google.com/document/d/1w7WE4gyZCwqYyP8XVbGSkYHF62QtdDvmcPojcVafCMQ/edit?usp=sharing
+
+____________________________________________________________________________________________________________________
+
+Пайтон модуль 3
