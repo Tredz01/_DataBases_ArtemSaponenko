@@ -25,3 +25,4 @@ https://docs.google.com/document/d/1w7WE4gyZCwqYyP8XVbGSkYHF62QtdDvmcPojcVafCMQ/
 ____________________________________________________________________________________________________________________
 
 Пайтон модуль 3
+https://docs.google.com/document/d/1WGrYvIh2jfN0Gvm2d3wyjkjVAafz_pnK371680hOCHs/edit?usp=sharing
