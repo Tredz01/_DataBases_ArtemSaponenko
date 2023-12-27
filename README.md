@@ -26,3 +26,6 @@ ________________________________________________________________________________
 
 Пайтон модуль 3
 https://docs.google.com/document/d/1WGrYvIh2jfN0Gvm2d3wyjkjVAafz_pnK371680hOCHs/edit?usp=sharing
+
+____________________________________________________________________________________________________________________
+Практика: https://drive.google.com/drive/folders/17W9uNPv-P5jO9ugdz86R0FZ1SYAjUZus?usp=sharing
