@@ -29,3 +29,6 @@ https://docs.google.com/document/d/1WGrYvIh2jfN0Gvm2d3wyjkjVAafz_pnK371680hOCHs/
 
 ____________________________________________________________________________________________________________________
 Практика: https://drive.google.com/drive/folders/17W9uNPv-P5jO9ugdz86R0FZ1SYAjUZus?usp=sharing
+____________________________________________________________________________________________________________________
+
+Твайн курс по SQL - https://drive.google.com/file/d/1gHOL303QOvHtP0LrI3DVEvl66TvsAyV0/view?usp=drive_link
